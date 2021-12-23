@@ -1,2 +1,1 @@
-# xertz-page
-my page
+im gay
